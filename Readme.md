@@ -1,0 +1,1 @@
+<https://fabiap.files.wordpress.com/2011/01/wood-joints-in-classical-japanese-architecture.pdf>
